@@ -1,31 +1,32 @@
-G.E.M. - 泡沫
-Wiz Khalifa - See You Again (feat. Charlie Puth)
-梦然 - 少年
-Selena Gomez - Wolves
-Leehom Wang - 你不知道的事
-Joe Hisaishi - Merry-Go-Round of Life - from 'Howl's Moving Castle'
-Tanya Chua - 紅色高跟鞋
-Justin Bieber - Love Yourself
-Ariel Tsai - 小幸運
-Rainie Yang - 雨愛
-Pianoboy高至豪 - The truth that you leave
-One Direction - What Makes You Beautiful
-Shawn Mendes - Stitches
-Joe Hisaishi - One Summer Day
-Pu Shu - 平凡之路
-Wolfgang Amadeus Mozart - Mozart: Sonata for Two Pianos in D Major, K. 448: II. Andante
-Alessia Cara - Scars To Your Beautiful
-Yiruma - River Flows In You
-Yiruma - Kiss the Rain
-文武贝 - 幻昼 - 钢琴版
-Anne-Marie - 2002
-Zedd - The Middle
-Fall Out Boy - Centuries
-Fall Out Boy - Immortals
-DJ Snake - Let Me Love You
-David Guetta - Let It Be Me (feat. Ava Max)
-Avicii - The Nights
-Vicetone - Walk Thru Fire
-Alan Walker - The Spectre
-Martin Garrix - In the Name of Love - DallasK Remix
-Orange Ocean - 夏日漱石（Summer Cozy Rock）
+大泫 - 静悄悄
+Ellie Goulding - Love Me Like You Do - From "Fifty Shades Of Grey"
+Carly Rae Jepsen - Call Me Maybe
+Maroon 5 - Animals
+5 Seconds of Summer - Youngblood
+Martin Garrix - There For You - Madison Mars Remix
+Mayday - 玫瑰少年
+Sia - Unstoppable
+Sia - Move Your Body
+Marshmello - Happier
+League of Legends - Legends Never Die
+Imagine Dragons - Believer
+Imagine Dragons - Bad Liar
+Owl City - Good Time
+Martin Garrix - So Far Away (feat. Jamie Scott & Romy Dya)
+WALK THE MOON - Shut Up and Dance
+Sawano Hiroyuki - Call of Silence
+Leehom Wang - 緣分一道橋
+Calvin Harris - Outside (feat. Ellie Goulding)
+Linkin Park - Numb
+Kygo - It Ain't Me (with Selena Gomez)
+宋冬野 - 安和桥
+Jane Zhang - Dream It Possible
+RADWIMPS - Sparkle - movie ver.
+SLANDER - Love Is Gone - Acoustic
+The Chainsmokers - Something Just Like This - Dimitri Vegas & Like Mike Remix
+大籽 - 白月光与朱砂痣 - 中英文版
+Fall Out Boy - The Phoenix
+Zyboy忠宇 - 妈妈的话
+胡歌 - 一吻天荒
+Panic! At The Disco - High Hopes
+隊長 - 哪裡都是你
